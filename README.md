@@ -10,4 +10,4 @@
 										><>   				 ><>  		><>
 
 <div align="center">
-	<b> cat on float watching fishes (2026) </b></div>
+	<b> cat on rubber duck watching fishes (2026) </b></div>
